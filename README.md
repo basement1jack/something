@@ -1,0 +1,6 @@
+# something
+yes
+you know its my job to find this, right
+if i don't, jazz will be lost forever
+and the only reason why im the only one that can save it,
+is because 01001001 00100000 01000001 01001101 00100000 01010100 01001000 01000101 00100000 01010011 01001111 01001110 00100000 01001111 01000110 00100000 01001010 01000001 01011010 01011010 
